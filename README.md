@@ -6,4 +6,7 @@ Working with some great creative minds in Foxlab I gathered a lot of knowledge i
 
 I understand that knowledge is of no value unless it is shared and put to practice. I want to keep this pace of my progress and I feel it is my social commitment to inspire a lot of people across the world to make their ideas a reality. For that joined Fablab as a fellow. It would deeply satisfy me by working on new ideas of students and guide them through the right path.
 
+Our main goals it to enable Fablab to the people who demand and looking for digital fabrication expertise , And I was posted as full time fellow in fab lab kochi and my responsibilities are maintaing the lab and help the compaines,startups and students to fabricate there designs also anyone who would like to use the machines but has no idea to use it.
+
+
 
