@@ -1,4 +1,4 @@
-# KSUM Technology Innovation Fellowship 2018 Log 
+# KSUM Technology Innovation Fellowship 2018 - 2019
 
 <img src="/res/img/FirstInductionProgram.jpg" alt="Fellowship Induction Programme">
 
